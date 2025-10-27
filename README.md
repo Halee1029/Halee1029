@@ -9,4 +9,5 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning data analysis 
 - 👯 I’m looking to collaborate with interested partners 
 - 🤔 I’m looking for help with job opportunity 
-
+contact me:halimashatta@gmail.com
+linkedin: Halima shatta
